@@ -1,4 +1,4 @@
-# 
+# Principal sandwich attack bot herramientas para Mac OS | VIP sandwich attack bot herramientas para PC Windows. Con integración de router DEX y auditorías de seguridad — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
